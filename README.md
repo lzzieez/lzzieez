@@ -1,0 +1,4 @@
+- 👋 Hi, I’m Izzeaha - izzie for short.
+- 👀 I’m interested in horse racing games and stuff like that.
+- 😄 Pronouns: She/Her
+- ⚡ Fun fact: I have 2 cats and 1 rabbit as my pets.
